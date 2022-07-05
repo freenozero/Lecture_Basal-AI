@@ -1,1 +1,1 @@
-# Lecture_Pre-Course_4기-
+# Lecture_Pre-Course_4기
